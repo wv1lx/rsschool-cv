@@ -5,8 +5,7 @@
 * telegram:@qqwisp
 
 ## About me:
-*I have the traits of a leader, contributes to good results and a good percentage of achieving my goals.
-I take my goals seriously, I am executive, responsible, I like to work in a team, help my comrades.
+* I have the traits of a leader, contributes to good results and a good percentage of achieving my goals.I take my goals seriously, I am executive, responsible, I like to work in a team, help my comrades.
 
 ## Education
-*Midlle school in Belarus(Midlle aducaton)
+* Midlle school in Belarus(Midlle aducaton)
